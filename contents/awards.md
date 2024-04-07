@@ -1,8 +1,5 @@
-
-
-  
-
-
-- School Special Academic Scholarship, 2023.**(1%)**
-
-- First-Class Academic Scholarship, 2022.**(8%)**
+- Second Prize of Academic Excellence Scholarship,2022.（Rank: 163/1003）
+- Second Prize of Excellence in Social Work Scholarship,2022.
+- University-level Outstanding Student Cadre,2022.（24/500）
+- Second Prize in the National Undergraduate Mathematics Competition,2023.
+- Outstanding Teaching Assistant,2023.
